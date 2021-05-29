@@ -1,4 +1,4 @@
-### Hi iam paniz sedaghat  👋
+### Hi i am paniz sedaghat  👋
 
 
 
